@@ -11,3 +11,7 @@ https://anonfiles.com/s2V2g301yc/decryptor_exe
 
 
 
+# i dont take any responsibility for damage done with the programm it's for educational purposes only it is just to prove that your antivirus isnt that good how you think and that even if files doesnt have any detections still can harm you dont use this to token grabb others
+
+
+
